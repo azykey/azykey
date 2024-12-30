@@ -6,7 +6,7 @@
 - 📫 Como me encontrar ... ✉️ provavelmente com uma bússola 🧭 e muita paciência 🧘.  
 - 😄 Pronomes: ... 🤷‍♂️ Qualquer um, só não me chame de “criador de 🐛 bugs.”  
 - ⚡ Fato curioso: ... ⚙️ Meus "ajustes rápidos" já derrubaram o 🌍 sistema de produção umas três vezes.  
-👋 Olá, DInovo 
+👋 Olá, DInovo OLHA APENAS IREI COLOCAR OS PROJETOS NO git, mais nao irei organizar e nem fazer nada, porque?  ESPERO A sua boa vontade pra fazer isso pra nois;;.. 
 - 👀 Estou interessado em ... criar 🌀 sigilos misteriosos que representem minha alma (sim, sou *deep* assim) e talvez, só talvez, entender os chips quânticos 🧠🔮.  
 - 🌱 Atualmente estou aprendendo ... 📖 a combinar tecidos finos 👔 com design detalhado e, claro, lidar com a constante evolução da IA 🤖 enquanto ignoro o fato de que "100% completo" é só uma utopia 🚀.  
 - 💞️ Estou procurando colaborar em ... 🤝 qualquer projeto SSS (porque quem se contenta com AAA?), desde que não envolva código 🍝 spaghetti ou “gambiarras quânticas” 🛠️⚛️.  
